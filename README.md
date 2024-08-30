@@ -1,5 +1,5 @@
 # Olá, eu sou a Mari 🖐🏼
-💬 Tenho 25 anos, sou formada em Design Gráfico, mas migrei para a área de desenvolvimento web/mobile.<br><br>👩🏻‍💻 Já trabalhei em empresas como Helpbox, Oslo Tecnologia, T10 Bank e Superlógica Tecnologias.<br><br>🎮 Sou apaixonada por games desde criança e atualmente tenho um canal dedicado a isso.<br>
+💬 Tenho 26 anos, sou formada em Design Gráfico, mas migrei para a área de desenvolvimento web/mobile.<br><br>👩🏻‍💻 Já trabalhei em empresas como Helpbox, Oslo Tecnologia, T10 Bank e Superlógica Tecnologias.<br><br>🎮 Sou apaixonada por games desde criança e atualmente tenho um canal dedicado a isso.<br>
 
 
 ## 🌐 Redes sociais:
